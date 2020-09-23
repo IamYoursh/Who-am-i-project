@@ -28,4 +28,12 @@ then go check out this page where I do exactly that
 Being in high school often times means that people have an idea of what they
 wanna do in the future but I honestly haven't really given it much thought
 other than id appreciate a career in creating art or maybe preparing food for
-people, kind of like an illustrator for children's books or a chef/cook for a restaurant.
+people.
+
+If I go through with a career in art then I think I'll look to be an
+illustrator for children's books seeing as how my art is very smooth and
+cartoon like.
+
+However if I look for a career in food then I would like to become a
+cook/chef and make food for people at some fairly high-end place that doesn't
+take things to seriously.
