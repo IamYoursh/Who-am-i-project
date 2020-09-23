@@ -14,3 +14,5 @@ I am a Fifteen year old Canadian high school student that enjoys many common tee
   -Or even just simply talking to friends over voice call& messages
 
 Those are just some simple examples of what I enjoy filling my free time up with. if your interested in hearing a more in depth description of what I enjoy then go check out this page where I do exactly that
+
+(link to other page)
