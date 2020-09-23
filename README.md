@@ -33,7 +33,6 @@ people.
 If I go through with a career in art then I think I'll look to be an
 illustrator for children's books seeing as how my art is very smooth and
 cartoon like.
-
 However if I look for a career in food then I would like to become a
 cook/chef and make food for people at some fairly high-end place that doesn't
 take things to seriously.
